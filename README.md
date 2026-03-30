@@ -1,2 +1,2 @@
 # exerciciosLOP2
-Liste de exercícios 30/03/26
+Ana Paula B Corage
